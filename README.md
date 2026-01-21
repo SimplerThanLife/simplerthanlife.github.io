@@ -1,0 +1,1 @@
+# simplerthanlife.github.io
